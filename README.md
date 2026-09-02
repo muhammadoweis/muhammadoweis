@@ -38,4 +38,4 @@ I have worked across enterprise and automotive environments, digital commerce pl
 
 ## Connect
 
-LinkedIn: linkedin.com/in/muhammadoweis
+[LinkedIn](https://www.linkedin.com/in/muhammadoweis/)
